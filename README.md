@@ -32,6 +32,6 @@ Atualmente, busco oportunidades de **Estágio** ou posições **Júnior** na reg
 ---
 
 ### 📬 Vamos nos conectar?
-*   **LinkedIn:** [://linkedin.com](https://://linkedin.com)
+*   **LinkedIn:** https://www.linkedin.com/in/let%C3%ADcia-estevam-scharf-0a4477426)
 *   **E-mail:** leticiaestevamscharf@hotmail.com
 *   **Localização:** Araraquara - SP
